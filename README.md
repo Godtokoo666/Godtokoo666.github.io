@@ -1,2 +1,1 @@
-# Godtokoo666.github.io
-test
+# Godtokoo
